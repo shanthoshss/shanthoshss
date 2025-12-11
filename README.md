@@ -2,7 +2,7 @@
 - 👀 I’m interested in: playing games lol
 - 🌱 I’m currently learning: nothing
 - 💞️ I’m looking to collaborate on: me me, mememmeemmeemme!
-- 📫 How to reach me: my gmail or email: ksshanthosh08@gmail.com
+- 📫 How to reach me: my gmail or email: urmomkindafatlol@realemail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i am short
 - 
